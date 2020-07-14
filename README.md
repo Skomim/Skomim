@@ -1,5 +1,5 @@
 ### Hi there 👋
-I am Komi Modji
+This is Komi Modji, public health specialist, focused on epidemiology and maternal & child health with a strong passion for health equity. I have a medical training and had 4 years of college instructor experience.  
 <!--
 **Skomim/Skomim** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
